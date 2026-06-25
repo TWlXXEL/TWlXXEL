@@ -1,4 +1,8 @@
-## Hi there 👋
+hes so cute look at his santa hat😭😭😭😭
+
+<img width="736" height="1308" alt="440dcd162313c5bda6dddaae0cd8f734" 
+  src="https://github.com/user-attachments/assets/b5b62c48-2525-4944-8546-e8bd04dfc933" />
+
 
 <!--
 **TWlXXEL/TWlXXEL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
