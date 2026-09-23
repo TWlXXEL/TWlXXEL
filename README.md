@@ -5,7 +5,8 @@ also __dni__ if you baby twixxel like thats a full grown man 😭👌
 __iwc__ mobity fans cuz most of yall are weird
 
 **ac: ndethuwng on pin**
-<img width="736" height="928" alt="Untitled434_20260813210433" src="https://github.com/user-attachments/assets/28a4dff0-e30e-4627-8c6e-115b3b398bc4" />
+
+<img width="300" height="376" alt="Untitled434_20260813210433" src="https://github.com/user-attachments/assets/28a4dff0-e30e-4627-8c6e-115b3b398bc4" />
 
 <!--
 **TWlXXEL/TWlXXEL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
