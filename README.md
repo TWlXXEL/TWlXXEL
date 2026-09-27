@@ -6,6 +6,8 @@ __iwc__ mobity fans cuz most of yall are weird
 
 **ac: ndethuwng on pin**
 
+LOOKOUT FANS/SUPPORTERS STOP INTERACTING PLEASE
+
 <img width="300" height="376" alt="Untitled434_20260813210433" src="https://github.com/user-attachments/assets/28a4dff0-e30e-4627-8c6e-115b3b398bc4" />
 
 <!--
